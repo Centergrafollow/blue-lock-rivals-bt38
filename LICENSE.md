@@ -1,4 +1,4 @@
-
+blue lock rivals underground Scripts offers the most advanced blue lock rivals Script, with speed and fly. Perfect for dominating any match.
 
 
 
